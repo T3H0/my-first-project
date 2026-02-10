@@ -1,2 +1,2 @@
-# my-first-project
-This is my first project on GitHub
+# GitHub Uploading a Project
+K.GDio;qur9  qryOHSF  89PWYTDFUXGIPAtraYP97T7QW690WQTAIUFTWDP97R69R
